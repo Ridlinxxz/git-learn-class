@@ -1,0 +1,2 @@
+coding is a very hectic skill to acquire.
+it can make feel like you are learning something impossible to understand. you get to a point where you feel like giving up but with consistency you will always see a reason to continue and always want to get to the fun part.
